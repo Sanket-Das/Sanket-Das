@@ -29,8 +29,8 @@ I'm currently pursuing my B.Tech at **Techno India University, Tripura**. I'm pa
 
 ## 📫 Let's Connect
 
-- [LinkedIn](https://www.linkedin.com/)
-- [GitHub](https://github.com/your-github-username)
+- [LinkedIn](https://github.com/Sanket-Das)
+- [GitHub](https://github.com/Sanket-Das)
 
 ---
 
