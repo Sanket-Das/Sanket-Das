@@ -29,7 +29,7 @@ I'm currently pursuing my B.Tech at **Techno India University, Tripura**. I'm pa
 
 ## 📫 Let's Connect
 
-- [LinkedIn](https://github.com/Sanket-Das)
+- [LinkedIn](https://www.linkedin.com/in/sanketdas-cse?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 - [GitHub](https://github.com/Sanket-Das)
 
 ---
